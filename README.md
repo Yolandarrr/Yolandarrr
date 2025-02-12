@@ -1,5 +1,5 @@
 ### ✨ Hi, I'm Yolanda ✨
--- Data Bootcamp learner & Asipring Data Analyst<br/>
+-- Data Bootcamp learner & Aspiring Data Analyst<br/>
 ❤️ Passionate about learning and growing in data analytics<br/>
 👀 Looking to gain hands-on experience with real-world data 👀<br/>
 🙋🏻‍♀️ Open to collaborations and volunteer opportunities<br/>
